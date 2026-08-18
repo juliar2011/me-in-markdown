@@ -24,7 +24,6 @@ Here are my raitings of some songs from the playlist ->>>
 |Beaches|Beabadoobee|10/10|
 |4Me 4Me|Malcom Todd|7/10|
 |I Saw Your Face|Malcom Todd|4/10|
-|
 
 # Collage
 Here is a collage of some of the things I like in my life ! <3
